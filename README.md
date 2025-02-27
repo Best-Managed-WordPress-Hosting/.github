@@ -1,1 +1,1 @@
-# .github
+# [Besthost](https://besthost.co.za/)
